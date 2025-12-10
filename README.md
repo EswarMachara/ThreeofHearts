@@ -289,11 +289,11 @@ Here's a concise set of instructions you can include in your GitHub repository f
 ---
 # Contact
 
-**_Nikhileswara Rao Sulake_**
+**_Sai Manikanta Eswar Machara_**
 
-_nikhil01446@gmail.com_
+_macharasaimanikantaeswar@gmail.com_
 
-_+91 6281128232_
+_+91 9392005772_
 
 
 
